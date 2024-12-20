@@ -1,6 +1,19 @@
 # collaborating
 
+## Britta:
+- studied Sportsmanagement #  Britta
+- most liked recipe "Pasta Bolognese" # Britta
+- GR86 is a limited car from Toyota # Britta
+- a girl from Datteln next to Recklinhausen
+- KTB stands for my former name KLEINTOMBULTE
+
+
+## Shafi:
+- added by Shafi
+
 ## Wimpie Details:
+
+
 Bio:
 - A guy living in Recklinghausen, originally from South Africa.
 
@@ -20,3 +33,7 @@ Word definition:
 
 ## Shafi:
 - added by Shafi
+
+
+
+# uliana ..
